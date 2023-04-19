@@ -1,1 +1,1 @@
-## The projects that i have attended
+## The projects that i participated in 
